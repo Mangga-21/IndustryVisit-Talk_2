@@ -31,3 +31,9 @@ https://youtu.be/Da6aufK2FCE?si=e4q20daOJLIv4Glw
 by the way this is my team for this sem TIS.
 
 ![IMG_4662](https://github.com/user-attachments/assets/eef38a5c-ad7b-4eb8-b11c-552c6ada79f8)
+
+yeah it's 4 of us 
+
+that's all 
+
+thank you
